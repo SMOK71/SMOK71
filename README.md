@@ -97,3 +97,15 @@ https://www.dropbox.com/scl/fi/qiip4io138r0jnp33cef8/Toyota_Camry_2007_By_Fna_mo
 https://www.dropbox.com/scl/fi/6thn6u1v5pb7csm90w4kw/necrocharger.zip?rlkey=r3zvfua1z8va6ipy4mmo74hpb&dl=1
 
 كامري2006:https://www.dropbox.com/scl/fi/s8i9d22409xrgq4vzighb/Ali_Toyota_Camry_2003-2006.zip?rlkey=jxdws1wae596xbhmejf8x28c3&dl=1
+
+كروز:
+
+https://www.dropbox.com/scl/fi/l7s18lun9idc7blvywtd3/LandCruiser300_EVOLVE-Tech.zip?rlkey=3pdhnsqpi5rgo07d71eh9sjsl&st=ywzwb7lu&dl=1
+
+ماب الصحراء:
+
+https://www.dropbox.com/scl/fi/agxvhoxe7ic1pub6of132/1ToxicT63es.8.2-2.zip?rlkey=9w5wl18cg67dxrokve2uyxy5k&dl=1
+
+لاند24:
+
+https://www.dropbox.com/scl/fi/l7s18lun9idc7blvywtd3/LandCruiser300_EVOLVE-Tech.zip?rlkey=3pdhnsqpi5rgo07d71eh9sjsl&st=ywzwb7lu&dl=1
