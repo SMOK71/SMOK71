@@ -109,3 +109,7 @@ https://www.dropbox.com/scl/fi/agxvhoxe7ic1pub6of132/1ToxicT63es.8.2-2.zip?rlkey
 لاند24:
 
 https://www.dropbox.com/scl/fi/l7s18lun9idc7blvywtd3/LandCruiser300_EVOLVE-Tech.zip?rlkey=3pdhnsqpi5rgo07d71eh9sjsl&st=ywzwb7lu&dl=1
+
+اكسنت24:
+
+https://www.dropbox.com/scl/fi/kvkag5p7m7h4d18vbgbe0/.zip?rlkey=oqg8wwlfgrwbsbtwbwjxzgk4k&st=the3xuos&dl=1
