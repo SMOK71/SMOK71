@@ -113,3 +113,12 @@ https://www.dropbox.com/scl/fi/l7s18lun9idc7blvywtd3/LandCruiser300_EVOLVE-Tech.
 اكسنت24:
 
 https://www.dropbox.com/scl/fi/kvkag5p7m7h4d18vbgbe0/.zip?rlkey=oqg8wwlfgrwbsbtwbwjxzgk4k&st=the3xuos&dl=1
+
+التيما خويلد:
+
+https://www.dropbox.com/scl/fi/yuapq2ytjs4j3p7eigg21/.zip?rlkey=r93yqwuc144uaf2eglc4no3mx&st=li9nboh3&dl=1
+
+ربع:
+
+https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo5pn399zo5&st=4uevw417&dl=1
+
