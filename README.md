@@ -116,9 +116,7 @@ https://www.dropbox.com/scl/fi/kvkag5p7m7h4d18vbgbe0/.zip?rlkey=oqg8wwlfgrwbsbtw
 
 التيما خويلد:
 
-https://www.dropbox.com/scl/fi/yuapq2ytjs4j3p7eigg21/.zip?rlkey=r93yqwuc144uaf2eglc4no3mx&st=li9nboh3&dl=1
+https://www.dropbox.com/scl/fi/y0mrnx9bspve6ifzayo09/Altima_2017_KHwylD.zip?rlkey=j7mrh3im4djftupymsd7pmdok&st=a9h7ebqy&dl=1
 
-ربع:
 
-https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo5pn399zo5&st=4uevw417&dl=1
 
