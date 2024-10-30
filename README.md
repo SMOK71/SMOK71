@@ -120,3 +120,12 @@ https://www.dropbox.com/scl/fi/y0mrnx9bspve6ifzayo09/Altima_2017_KHwylD.zip?rlke
 
 
 
+هوندا i10 2022:
+
+https://www.dropbox.com/scl/fi/avtridx5pyv81at4be2an/Hyundai_i10_2022_abu-zahra.zip?rlkey=h3k3lc5bi2lptovojo6di4h2m&st=yijkong5&dl=1
+
+اكسنت:
+
+https://www.dropbox.com/scl/fi/narpcof3lth8tc2rxfhxs/Hyundai_Accent_2024.zip?rlkey=uh0hismxrs0qtlwnra43ogmq4&st=cqgfbsug&dl=1
+
+
