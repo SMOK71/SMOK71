@@ -74,8 +74,7 @@ https://www.dropbox.com/scl/fi/qiip4io138r0jnp33cef8/Toyota_Camry_2007_By_Fna_mo
 
 كروز:
 
-‏ https://www.dropbox.com/scl/fi/8lst00z9d8gzgn7bsrqy0/cruze16.zip?rlkey=v4yst15ib5p1izwiks92szsrj&st=xd7vt07w&dl=1
-
+https://www.dropbox.com/scl/fi/yqeyzziw8i9o7cfxhf8gu/cruze16.zip?rlkey=vfnqo5ol7t3r7eywx6z7uwh0a&st=0xfuv5xp&dl=1‏ 
 النترا2017:
 
 ‏https://www.dropbox.com/scl/fi/1ly9hm33hp243ucum0mxf/Elantra.zip?rlkey=dt88wbwtddk4geju2f1vscfiq&dl=1
