@@ -127,3 +127,4 @@ https://www.dropbox.com/scl/fi/avtridx5pyv81at4be2an/Hyundai_i10_2022_abu-zahra.
 
 https://www.dropbox.com/scl/fi/xij2d562tzkq4t2abwv49/Hyundai-Accent-2024-BETA-V1.5.zip?rlkey=ra9yul42z8x5b7tufak8yyxo1&st=7aumwotk&dl=1
 
+https://www.dropbox.com/scl/fi/yqeyzziw8i9o7cfxhf8gu/cruze16.zip?rlkey=vfnqo5ol7t3r7eywx6z7uwh0a&st=0xfuv5xp&dl=1
