@@ -125,6 +125,35 @@ https://www.dropbox.com/scl/fi/avtridx5pyv81at4be2an/Hyundai_i10_2022_abu-zahra.
 
 اكسنت:
 
-https://www.dropbox.com/scl/fi/xij2d562tzkq4t2abwv49/Hyundai-Accent-2024-BETA-V1.5.zip?rlkey=ra9yul42z8x5b7tufak8yyxo1&st=7aumwotk&dl=1
+https://www.dropbox.com/scl/fi/xij2d562tzkq4t2abwv49/Hyundai-Accent-2024-BETA-V1.5.zip?rlkey=ra9yul42z8x5b7tufak8yyxo1&st=7aumwotk&dl=1&dl=1
 
-https://www.dropbox.com/scl/fi/yqeyzziw8i9o7cfxhf8gu/cruze16.zip?rlkey=vfnqo5ol7t3r7eywx6z7uwh0a&st=0xfuv5xp&dl=1
+كروز:
+
+https://www.dropbox.com/scl/fi/294t6knrhltzmevjdkyvz/cruze16.zip?rlkey=30krbq12v1qjllufp8imfe7ia&st=lt605zc8&dl=1
+
+كامري 2004:
+
+https://www.dropbox.com/scl/fi/395dss7hgqay5vmexde2e/Toyota-Camry-2004.zip?rlkey=tciavm8irqbl4etdyeindhnq0&st=5jaw3bxi&dl=1
+
+هايلكس:
+
+https://www.dropbox.com/scl/fi/1pi9y5lumj1dn1btp9ikt/Abo3Zmh_hilux_v1.zip?rlkey=kyq89wm15x89ig8e08pek3e9y&st=tgm0yvuk&dl=1
+
+صني:
+
+https://www.dropbox.com/scl/fi/uui6ylm31al6m6iglgmff/Nissan-Sunny.zip?rlkey=1721hyyqovuhl9k3s4cz1lpn7&st=cetsqq23&dl=1
+
+النترا:
+
+https://www.dropbox.com/scl/fi/9d5ij751ce0nos11qi9k5/Hyundai-Elantra.zip?rlkey=bgxya12syxprdgoprz9zdubon&st=3ww4ycrf&dl=1
+
+ريو2020:
+
+https://www.dropbox.com/scl/fi/1ybf423uyeaeep4qauhbi/Rio2020_By_Abdo_Husyan.zip?rlkey=lixak9rg4y3q1idpr7xyk08un&st=726o4z2u&dl=1
+
+ربع مفجور:
+
+https://www.dropbox.com/scl/fi/tkgwfpwebx4l8nk7sxvmh/TL_MT_Rims.zip?rlkey=s916a9qt6hbyi3q94eua3wsjl&st=nkxy4yb4&dl=1
+
+
+
