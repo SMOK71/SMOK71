@@ -158,3 +158,7 @@ https://www.dropbox.com/scl/fi/tkgwfpwebx4l8nk7sxvmh/TL_MT_Rims.zip?rlkey=s916a9
 بهبهاني:
 
 https://modsfire.com/aDsr5s4y1KfbbsD
+
+كورلا18:
+
+https://www.dropbox.com/scl/fi/p2yhdj7n709jwjuz6w4ur/flanje_corolla_e180.zip?rlkey=6hj1xv2kpvq7wyqtipbvuz7sn&st=spnkd80j&dl=1
