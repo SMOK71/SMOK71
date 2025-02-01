@@ -51,9 +51,10 @@ https://www.dropbox.com/scl/fi/762cq1qg9ftd6zmpovyp0/Ali_Kuwait_City.zip?rlkey=e
 
 https://www.dropbox.com/scl/fi/i3d8p2n46a7cionquiyb3/Hyundai_Accent_2010_KHwylD.rar?rlkey=h436do4816xi1tur6fwjme984&dl=1
 
-برادو2009👇🏻
+ماب الجراديه: 
 
-https://www.dropbox.com/scl/fi/msjpa8ow5q2py39ixrva6/Prado_2009_KHwylD.rar?rlkey=ss9kgqmax3w5cs9lkdi6vnjt3&dl=1
+https://www.mediafire.com/file/i3jpn8m5aa8x17c/Al_Jaradiah_Riyadh.rar/file
+
 
 map👇🏻
 
