@@ -163,3 +163,12 @@ https://modsfire.com/aDsr5s4y1KfbbsD
 كورلا18:
 
 https://www.dropbox.com/scl/fi/p2yhdj7n709jwjuz6w4ur/flanje_corolla_e180.zip?rlkey=6hj1xv2kpvq7wyqtipbvuz7sn&st=spnkd80j&dl=1
+
+ربع: https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
+
+
+كروز: https://modsfire.com/v77T8rg7GXU7pli
+
+ربع: https://modsfire.com/E52Uczqa2Hm7BGW
+
+كامري 2025 اصدار (خويلد): https://www.mediafire.com/file/8pmdkprttiivrgq/Camry_2025_KHwylD.rar/file
