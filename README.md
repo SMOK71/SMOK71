@@ -174,4 +174,121 @@ https://www.dropbox.com/scl/fi/p2yhdj7n709jwjuz6w4ur/flanje_corolla_e180.zip?rlk
 
 ربع: https://modsfire.com/E52Uczqa2Hm7BGW
 
-كامري 2025 اصدار (خويلد): https://www.mediafire.com/file/8pmdkprttiivrgq/Camry_2025_KHwylD.rar/file
+جلي امجراند 2023:
+
+https://modsfire.com/4xC6Ujn36b8VBgn
+
+لومينا 2008-2010:
+
+https://modsfire.com/4D6P9SIW4F6pQDF
+
+اكورد 2004:
+
+https://modsfire.com/O05a1e15E8pTxS1
+
+ددسن:
+
+https://modsfire.com/61XzzOq75xZ188i
+
+ربع بوليسي:
+
+https://modsfire.com/CazKs25v6J2J8nA
+
+كامري 2019:
+
+https://modsfire.com/Jl0V23C9B4Z8DUb
+
+ماركيز 2005-2011:
+
+https://modsfire.com/B710rE980LXr694
+
+اكورد 2008-2012:
+
+https://modsfire.com/55361O4P616oqN1
+
+i10 2023:
+
+https://modsfire.com/8Xg892asX65Whxb
+
+ددسن 2006-2016:
+
+https://www.modland.net/beamng.drive-mods/cars/nissan-ddsen-1-cab-beta-released.html
+
+لومينا 2008:
+
+https://modsfire.com/xOF4289Xejw1OMd
+
+كامري 2007:
+
+https://modsfire.com/download/eGW7Gpt25K9jx3e/024b9
+
+هايلكس 2008:
+
+https://modsfire.com/yG8Wm9F8F8w81sV
+
+مكسيما 99:
+
+https://modsfire.com/download/Yv31aCQGvgA398l/b5ce3
+
+ازيرا 2015:
+
+https://modsfire.com/download/2Dd4ht14R8wPH2q/7edc9
+
+كراون فاكتوريا 2011:
+
+https://modsfire.com/129Ben0wm7Y0UjV
+
+هايلكس 2020:
+
+https://modsfire.com/oKhWUXVl556mJ4a
+
+يارس:
+
+https://modsfire.com/OYI9063Yk15193g
+
+كروز 2017:
+
+https://modsfire.com/v77T8rg7GXU7pli
+
+تشارجر 2013:
+
+https://modsfire.com/yoQR7RIbkxkMOVY
+
+اكسنت 2009:
+
+https://modsfire.com/Wvr1fI9tm34v6kH
+
+اكسنت:
+
+https://modsfire.com/mo3907orMjWgIXs
+
+اكسبدشن 2014:
+
+https://modsfire.com/cQQu6Q2pE5tcg94
+
+كابرس 2013:
+
+https://modsfire.com/bmQP32U42cMpcD8
+
+لومينا 2008-2010:
+
+https://modsfire.com/4D6P9SIW4F6pQDF
+
+سنتافي:
+
+https://modsfire.com/mZBI3XN6nKSCh18
+
+imax10:
+
+https://modsfire.com/ba8DBRqGfTV0v8J
+
+جينسس:
+
+https://modsfire.com/AB1y9dZ52dw42vp
+
+لومينا 2008-2010
+
+https://modsfire.com/4D6P9SIW4F6pQDF
+
+
+
