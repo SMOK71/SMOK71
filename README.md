@@ -21,8 +21,9 @@ accord👇🏻
 https://www.dropbox.com/scl/fi/45qfbwg42gl6m60v6ea5j/accordqazxed.zip?rlkey=5w7huhs3cvn9xni14v691yi93&st=jkgk60up&dl=1
 
 
-سيرا👇🏻
-https://www.dropbox.com/scl/fi/9rzfmpizk825zkwr8wjf1/GMC-Sierra-2017-2015-V1.2.zip?rlkey=lxcp3w3ujky54e2zv4gswyylq&st=pyjsgr00&dl=1
+ماب الياسمين:
+
+https://modsfire.com/0bTNGV735kttmZM
 
 
 فان نون
